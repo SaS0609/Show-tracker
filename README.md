@@ -1,6 +1,6 @@
 # 🎬 Anime Movie Tracker
 
-> - **Legenda**  
+> -- **Legenda**  
 > ✅ Finished | 📌 Plan to watch | ⭐ Favorite  
 
 ---
