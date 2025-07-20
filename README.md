@@ -60,14 +60,14 @@
 ---
 
 ## 🇯🇵 Sunao Katabuchi  
-✅ *In This Corner of the World* – 2016  
+✅ [*In This Corner of the World*](https://www.animesaturn.cx/watch?file=dK0H6RAeK5na) – 2016  
 
 ---
 
 ## 🌊 Tetsurō Araki  
-✅ *Bubble* – 2022  
+✅ [*Bubble*](https://www.animesaturn.cx/watch?file=FgDxRxgxqfxUp) – 2022  
 
 ---
 
 ## 🎻 Yoshifumi Kondō  
-📌 *Whisper of the Heart* – 1995  
+📌 [*Whisper of the Heart*](https://www.animesaturn.cx/watch?file=XzqMfO9mUki91) – 1995  
