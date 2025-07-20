@@ -46,8 +46,8 @@
 ---
 
 ## 🧠 Satoshi Kon  
-✅ [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 ⭐ 
-✅ [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 ⭐ 
+✅ [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 ⭐  
+✅ [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 ⭐  
 📌 [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003  
 
 ---
