@@ -17,6 +17,11 @@
 
 ---
 
+## 🏫 Gorō Miyazaki (Studio Ghibli)  
+📌 [*From Up on Poppy Hill*](https://animepahe.ru/play/d5e0647e-06fb-6fc7-87c0-24c99e674cac/6dcbd974e6120b332191d6bc7174d800e853d58927561a37f17e03676d15d0fd) – 2011  
+
+---
+
 ## 🎥 Isao Takahata (Studio Ghibli)
 📌 [*Grave of the Fireflies*](https://animepahe.ru/play/4660b1b4-4ec7-1346-ec3f-b77f6fa36e80/79282ce9a1e7594f4e263fa10e1df2ed016983aa437eab59f02d766ed811b7f5) – 1988  
 
