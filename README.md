@@ -1,7 +1,9 @@
 # 🎬 Anime Movie Tracker
 
+---
+
 > **Legenda**  
-> ✅ Finished | ⚠️ In progress | 📌 To watch  
+> ✅ Finished | ⚠️ In progress | 📌 To watch | ⭐ Favorite 
 
 ---
 
@@ -15,7 +17,7 @@
 ---
 
 ## ✒️ Kiyotaka Oshiyama  
-✅ [*Look Back*](https://www.animesaturn.cx/watch?file=DEjp0cmcTDVEj) – 2024  
+✅ [*Look Back*](https://www.animesaturn.cx/watch?file=DEjp0cmcTDVEj) – 2024 ⭐
 
 ---
 
@@ -48,8 +50,8 @@
 ---
 
 ## 🧠 Satoshi Kon  
-✅ *Paprika* – 2006  
-✅ *Perfect Blue* – 1997  
+✅ *Paprika* – 2006 ⭐
+✅ *Perfect Blue* – 1997 ⭐
 📌 *Tokyo Godfathers* – 2003  
 
 ---
