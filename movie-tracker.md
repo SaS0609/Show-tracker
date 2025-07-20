@@ -14,6 +14,7 @@
 📌 [*Howl's Moving Castle*](https://www.animesaturn.cx/watch?file=GE-NpM5JDj7xi) – 2004  
 📌 [*Ponyo*](https://animepahe.ru/play/730a0b29-94fc-29d3-4b6c-4c9c4522d1ac/fafa082485675b2d5a2a483eb5775cc83a852fc8f46d0ab1672d5caf1bed10ca) – 2008  
 📌 [*The Wind Rises*](https://animepahe.ru/play/279f1e25-5abc-4b9b-d9f5-8e3059029c11/01bcbd86d631a6b5361950c58974d5dd7a092b484339ca84bc006c5e04e2a2bb) – 2013  
+✅ [*The Boy and the Heron*](https://www.animesaturn.cx/watch?file=2_QiLmb9Zpgkw) – 2023  
 
 ---
 
