@@ -1,11 +1,7 @@
 # 🎬 Anime Movie Tracker
 
----
-
 > **Legenda**  
 > ✅ Finished | ⚠️ In progress | 📌 To watch | ⭐ Favorite 
-
----
 
 ## 🌿 Hayao Miyazaki
 📌 *Porco Rosso* – 1992  
