@@ -22,6 +22,12 @@
 
 ---
 
+
+## 🎻 Yoshifumi Kondō (Studio Ghibli)  
+📌 [*Whisper of the Heart*](https://archive.org/details/nonton-whisper-of-the-heart-1995) – 1995  
+
+---
+
 ## ✒️ Kiyotaka Oshiyama  
 ✅ [*Look Back*](https://www.animesaturn.cx/watch?file=DEjp0cmcTDVEj) – 2024 ⭐  
 
@@ -77,6 +83,4 @@
 
 ---
 
-## 🎻 Yoshifumi Kondō (Studio Ghibli)  
-📌 [*Whisper of the Heart*](https://archive.org/details/nonton-whisper-of-the-heart-1995) – 1995  
 
