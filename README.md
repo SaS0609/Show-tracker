@@ -4,11 +4,11 @@
 > ✅ Finished | ⚠️ In progress | 📌 To watch | ⭐ Favorite 
 
 ## 🌿 Hayao Miyazaki
-📌 *Porco Rosso* – 1992  
-📌 *Princess Mononoke* – 1997  
-📌 *Spirited Away* – 2001  
+📌 [*Porco Rosso*](https://animepahe.ru/play/37a1da97-ebb0-113d-adee-d8979c648e6a/6acaf03f0ce21c0afc6d5491f3b5a673da84ce90a1f7b3d5eaf72f5d59520cba) – 1992  
+📌 [*Princess Mononoke*](https://animepahe.ru/play/9aef1d8b-764b-9aaa-9a64-05f162963727/1adf86f404de209f1aba3dae14e935658546210c7cf77275ac9040ff3519364a) – 1997  
+📌 [*Spirited Away*](https://animepahe.ru/play/294d4393-45d6-54a3-566f-f407a71ea8df/4e26290fc90f55cd0ebac1c72f05af03398133a09a3b9e072b203058c60d9509) – 2001  
 📌 [*Howl's Moving Castle*](https://www.animesaturn.cx/watch?file=GE-NpM5JDj7xi) – 2004  
-📌 *My Neighbor Totoro* – 1988  
+📌 [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988  
 
 ---
 
@@ -46,9 +46,9 @@
 ---
 
 ## 🧠 Satoshi Kon  
-✅ *Paprika* – 2006 ⭐
-✅ *Perfect Blue* – 1997 ⭐
-📌 *Tokyo Godfathers* – 2003  
+✅ [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 ⭐
+✅ [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 ⭐
+📌 [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003  
 
 ---
 
@@ -58,14 +58,14 @@
 ---
 
 ## 🇯🇵 Sunao Katabuchi  
-✅ [*In This Corner of the World*](https://www.animesaturn.cx/watch?file=dK0H6RAeK5na) – 2016  
+✅ [*In This Corner of the World*](https://www.animesaturn.cx/watch?file=Whemy2Cr46xl7) – 2016  
 
 ---
 
 ## 🌊 Tetsurō Araki  
-✅ [*Bubble*](https://www.animesaturn.cx/watch?file=FgDxRxgxqfxUp) – 2022  
+✅ [*Bubble*](https://www.animesaturn.cx/watch?file=9_4Wo3V5D3NbR) – 2022  
 
 ---
 
 ## 🎻 Yoshifumi Kondō  
-📌 [*Whisper of the Heart*](https://www.animesaturn.cx/watch?file=XzqMfO9mUki91) – 1995  
+📌 [*Whisper of the Heart*](https://archive.org/details/nonton-whisper-of-the-heart-1995) – 1995  
