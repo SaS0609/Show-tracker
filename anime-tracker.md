@@ -30,7 +30,9 @@
 - Uzaki-chan wa Asobitai!  
 - Akame ga Kill  
 - Assassination Classroom  
-- I’m Getting Married to a Girl I Hate in My Class  
+- I’m Getting Married to a Girl I Hate in My Class
+
+---
 
 ## ⚠️ Currently Watching  
 
@@ -68,6 +70,8 @@
 - The Eminence in Shadow  
 - The Summer Hikaru Died  
 - Oshi no Ko  
+
+---
 
 ## 📌 Plan to Watch  
 
@@ -110,6 +114,8 @@
 - Tougen Anki  
 - Baccano  
 - The Shiunji Family Children  
+
+---
 
 ## ❗Dropped  
 
