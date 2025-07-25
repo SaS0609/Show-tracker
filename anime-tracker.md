@@ -1,3 +1,5 @@
+# Anime tracker
+
 **✅ Watched**
 
 - Blend S  
