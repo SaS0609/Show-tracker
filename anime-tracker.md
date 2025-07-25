@@ -1,124 +1,124 @@
-**✅ Visti**
+**✅ Watched**
 
-- **Blend S** - *A-1 Pictures* - Miyuki Nakayama
-- **Love is War** - *A-1 Pictures* - Aka Akasaka
-- **Wotakoi: Love is Hard for Otaku** - *A-1 Pictures* - Fujita
-- **Death Note** - *Madhouse* - Tsugumi Ohba
-- **Haikyuu!!** - *Production I.G* - Haruichi Furudate
-- **The Dragon Dentist** - *Khara* - Ōtarō Maijō
-- **Sakurasou no Pet na Kanojo** - *J.C.Staff* - Hajime Kamoshida
-- **Food Wars** - *J.C.Staff* - Yūto Tsukuda
-- **Toradora** - *J.C.Staff* - Yuyuko Tokemiya
-- **Violet Evergarden** - *Kyoto Animation* - Kana Akatsuki
-- **Horimiya** - *CloverWorks* - HERO
-- **Wonder Egg Priority** - *CloverWorks* - Shinji Nojima
-- **Dead Dead Demons Dededede Destruction** - *Production +h* - Inio Asano
-- **Charlotte** - *P.A. Works* - Jun Maeda
-- **Sakamoto desu ga?** - *Studio Deen* - Nami Sano
-- **Alya Sometimes Hides Her Feelings in Russian** - *Doga Kobo* - SunSunSun
-- **Shikimori's Not Just a Cutie** - *Doga Kobo* - Keigo Maki
-- **Don't Toy with Me, Miss Nagatoro** - *Telecom Animation Film* - Nanashi
-- **The God of High School** - *MAPPA* - Yongje Park
-- **Domestic na Kanojo** - *Diomedéa* - Kei Sasuga
-- **Kiseijuu (Parasyte)** - *Madhouse* - Hitoshi Iwaaki
-- **Tomodachi Game** - *Okuruto Noboru* - Mikoto Yamaguchi
-- **The Promised Neverland** - *CloverWorks* - Kaiu Shirai
-- **Gamers!** - *Pine Jam* - Sekina Aoi
-- **The Quintessential Quintuplets** - *Tezuka Productions / Bibury Animation Studios* - Negi Haruba
-- **Uzaki-chan wa Asobitai!** - *ENGI* - Take
-- **Akame ga Kill** - *White Fox* - Takahiro
-- **Assassination Classroom** - *Lerche* - Yūsei Matsui
-- **I’m Getting Married to a Girl I Hate in My Class** - *Studio Deen* - Reiji Kaito
+- Blend S  
+- Love is War  
+- Wotakoi: Love is Hard for Otaku  
+- Death Note  
+- Haikyuu!!  
+- The Dragon Dentist  
+- Sakurasou no Pet na Kanojo  
+- Food Wars  
+- Toradora  
+- Violet Evergarden  
+- Horimiya  
+- Wonder Egg Priority  
+- Dead Dead Demons Dededede Destruction  
+- Charlotte  
+- Sakamoto desu ga?  
+- Alya Sometimes Hides Her Feelings in Russian  
+- Shikimori's Not Just a Cutie  
+- Don't Toy with Me, Miss Nagatoro  
+- The God of High School  
+- Domestic na Kanojo  
+- Kiseijuu (Parasyte)  
+- Tomodachi Game  
+- The Promised Neverland  
+- Gamers!  
+- The Quintessential Quintuplets  
+- Uzaki-chan wa Asobitai!  
+- Akame ga Kill  
+- Assassination Classroom  
+- I’m Getting Married to a Girl I Hate in My Class  
 
-**⚠️ In corso**
+**⚠️ Currently Watching**
 
-- **Pokémon Horizons** - *OLM* - Nintendo
-- **Komi Can't Communicate** - *OLM* - Tomohito Oda
-- **Wind Breaker** - *CloverWorks* - Satoru Nii
-- **Spy x Family** - *Wit Studio / CloverWorks* - Tatsuya Endo
-- **Bunny Girl Senpai** - *CloverWorks* - Hajime Kamoshida
-- **My Dress-Up Darling** - *CloverWorks* - Shinichi Fukuda
-- **Gachiakuta** - *Studio Bones* - Kei Urana
-- **Fire Force** - *David Production* - Atsushi Ōkubo
-- **Blue Lock** - *8bit* - Muneyuki Kaneshiro
-- **Slime (That Time I Got Reincarnated as a Slime)** - *8bit* - Fuse
-- **Cyberpunk: Edgerunners** - *Studio Trigger* - CD Projekt Red
-- **Dan Da Dan** - *Science SARU* - Yukinobu Tatsu
-- **Kaiju No. 8** - *Production I.G / Khara* - Naoya Matsumoto
-- **Frieren: Beyond Journey’s End** - *Madhouse* - Kanehito Yamada
-- **Hunter x Hunter** - *Madhouse* - Yoshihiro Togashi
-- **One Punch Man** - *Madhouse / J.C.Staff* - ONE
-- **Heavenly Delusion** - *Production I.G* - Masakazu Ishiguro
-- **Hell's Paradise** - *MAPPA* - Yūji Kaku
-- **Jujutsu Kaisen** - *MAPPA* - Gege Akutami
-- **The Fragrant Flower Blooms With Dignity** - *CloverWorks* - Saka Mikami
-- **Sakamoto Days** - *Unknown Studio* - Yuto Suzuki
-- **Takopi's Original Sin** - *Unknown Studio* - Taizan 5
-- **Re:Zero** - *White Fox* - Tappei Nagatsuki
-- **Classroom of the Elite** - *Lerche* - Shōgo Kinugasa
-- **Rent-a-Girlfriend** - *TMS Entertainment* - Reiji Miyajima
-- **Go! Go! Loser Ranger!** - *Yostar Pictures* - Negi Haruba
-- **Shangri-La Frontier** - *C2C* - Katarina
-- **Wistoria: Wand and Sword** - *Actas / Bandai Namco* - Fujino Ōmori
-- **Solo Leveling** - *A-1 Pictures* - Chugong
-- **Blue Box** - *Unknown Studio* - Kōji Miura
-- **Mushoku Tensei** - *Studio Bind* - Rifujin na Magonote
-- **The Eminence in Shadow** - *Nexus* - Daisuke Aizawa
-- **The Summer Hikaru Died** - *Unknown Studio* - Mokumokuren
-- **Oshi no Ko** - *Doga Kobo* - Aka Akasaka
+- Pokémon Horizons  
+- Komi Can't Communicate  
+- Wind Breaker  
+- Spy x Family  
+- Bunny Girl Senpai  
+- My Dress-Up Darling  
+- Gachiakuta  
+- Fire Force  
+- Blue Lock  
+- Slime (That Time I Got Reincarnated as a Slime)  
+- Cyberpunk: Edgerunners  
+- Dan Da Dan  
+- Kaiju No. 8  
+- Frieren: Beyond Journey’s End  
+- Hunter x Hunter  
+- One Punch Man  
+- Heavenly Delusion  
+- Hell's Paradise  
+- Jujutsu Kaisen  
+- The Fragrant Flower Blooms With Dignity  
+- Sakamoto Days  
+- Takopi's Original Sin  
+- Re:Zero  
+- Classroom of the Elite  
+- Rent-a-Girlfriend  
+- Go! Go! Loser Ranger!  
+- Shangri-La Frontier  
+- Wistoria: Wand and Sword  
+- Solo Leveling  
+- Blue Box  
+- Mushoku Tensei  
+- The Eminence in Shadow  
+- The Summer Hikaru Died  
+- Oshi no Ko  
 
-**📌 Da vedere**
+**📌 Plan to Watch**
 
-- **Black Butler** - *A-1 Pictures* - Yana Toboso
-- **Black Bullet** - *Kinema Citrus / Orange* - Shiden Kanzaki
-- **Fate Series** - *Ufotable / others* - Type-Moon
-- **No Game No Life** - *Madhouse* - Yuu Kamiya
-- **Pluto** - *Studio M2* - Naoki Urasawa
-- **The Apothecary Diaries** - *TOHO Animation / OLM* - Natsu Hyuuga
-- **The Dangers in My Heart** - *Shin-Ei Animation* - Norio Sakurai
-- **Bleach** - *Pierrot* - Tite Kubo
-- **One Piece** - *Toei Animation* - Eiichiro Oda
-- **Chainsaw Man** - *MAPPA* - Tatsuki Fujimoto
-- **Dorohedoro** - *MAPPA* - Q Hayashida
-- **Re-Main** - *MAPPA* - Masafumi Nishida
-- **Undead Unluck** - *David Production* - Yoshifumi Tozuka
-- **JoJo’s Bizarre Adventure** - *David Production* - Hirohiko Araki
-- **Banana Fish** - *MAPPA* - Akimi Yoshida
-- **Trigun Stampede** - *Orange* - Yasuhiro Nightow
-- **Bocchi the Rock!** - *CloverWorks* - Aki Hamaji
-- **The Rising of the Shield Hero** - *Kinema Citrus* - Aneko Yusagi
-- **Tokyo Revengers** - *LIDENFILMS* - Ken Wakui
-- **Yofukashi no Uta (Call of the Night)** - *LIDENFILMS* - Kotoyama
-- **Tower of God** - *Telecom Animation Film* - SIU
-- **Summer Time Rendering** - *OLM* - Yasuki Tanaka
-- **Devil May Cry** - *Studio Pierrot (older) / Unknown Studio (new)* - Capcom
-- **Erased** - *A-1 Pictures* - Kei Sanbe
-- **Gurren Lagann** - *Gainax* - Kazuki Nakashima
-- **Given** - *Lerche* - Natsuki Kizu
-- **Steins;Gate** - *White Fox* - 5pb. / Nitroplus
-- **Sk8 the Infinity** - *Bones* - Ichirō Ōkouchi
-- **Mob Psycho 100** - *Bones* - ONE
-- **Dr. Stone** - *TMS Entertainment* - Riichiro Inagaki
-- **Yuri on Ice** - *MAPPA* - Sayo Yamamoto
-- **Delicious in Dungeon** - *Trigger* - Ryoko Kui
-- **Odd Taxi** - *OLM / P.I.C.S.* - Kazuya Konomoto
-- **Bungou Stray Dogs** - *Bones* - Kafka Asagiri
-- **Seraph of the End** - *Wit Studio* - Takaya Kagami
-- **Orb** - *Unknown Studio* - Unknown
-- **Tougen Anki** - *Unknown Studio* - Yura Urushibara
-- **Baccano** - *Brain’s Base* - Ryohgo Narita
-- **The Shiunji Family Children** - *Unknown Studio* - Reiji Miyajima
+- Black Butler  
+- Black Bullet  
+- Fate Series  
+- No Game No Life  
+- Pluto  
+- The Apothecary Diaries  
+- The Dangers in My Heart  
+- Bleach  
+- One Piece  
+- Chainsaw Man  
+- Dorohedoro  
+- Re-Main  
+- Undead Unluck  
+- JoJo’s Bizarre Adventure  
+- Banana Fish  
+- Trigun Stampede  
+- Bocchi the Rock!  
+- The Rising of the Shield Hero  
+- Tokyo Revengers  
+- Yofukashi no Uta (Call of the Night)  
+- Tower of God  
+- Summer Time Rendering  
+- Devil May Cry  
+- Erased  
+- Gurren Lagann  
+- Given  
+- Steins;Gate  
+- Sk8 the Infinity  
+- Mob Psycho 100  
+- Dr. Stone  
+- Yuri on Ice  
+- Delicious in Dungeon  
+- Odd Taxi  
+- Bungou Stray Dogs  
+- Seraph of the End  
+- Orb  
+- Tougen Anki  
+- Baccano  
+- The Shiunji Family Children  
 
-**❗ Abbandonati**
+**❗ Dropped**
 
-- **Chuunibyou** - *Kyoto Animation* - Torako
-- **DanMachi** - *J.C.Staff* - Fujino Ōmori
-- **Seven Deadly Sins** - *A-1 Pictures / Studio Deen* - Nakaba Suzuki
-- **Konosuba** - *Studio Deen / Drive* - Natsume Akasaki
-- **Hataraku Maou-sama!** - *White Fox / 3Hz* - Satoshi Wagahara
-- **Kuma Kuma Kuma Bear** - *EMT Squared* - Kumanano
-- **Darling in the Franxx** - *A-1 Pictures / Trigger / CloverWorks* - Code:000
-- **Kanojo mo Kanojo** - *Tezuka Productions* - Hiroyuki
-- **Tokyo Gh
-::contentReference[oaicite:0]{index=0}
- 
+- Chuunibyou  
+- DanMachi  
+- Seven Deadly Sins  
+- Konosuba  
+- Hataraku Maou-sama!  
+- Kuma Kuma Kuma Bear  
+- Darling in the Franxx  
+- Kanojo mo Kanojo  
+- Tokyo Ghoul  
+- The Misfit of Demon King Academy  
+
