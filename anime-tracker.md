@@ -14,7 +14,6 @@
 - Violet Evergarden  
 - Horimiya  
 - Wonder Egg Priority  
-- Dead Dead Demons Dededede Destruction  
 - Charlotte  
 - Sakamoto desu ga?  
 - Alya Sometimes Hides Her Feelings in Russian  
@@ -22,6 +21,7 @@
 - Don't Toy with Me, Miss Nagatoro  
 - The God of High School  
 - Domestic na Kanojo  
+- No Game No Life  
 - Kiseijuu (Parasyte)  
 - Tomodachi Game  
 - The Promised Neverland  
@@ -45,7 +45,7 @@
 - Gachiakuta  
 - Fire Force  
 - Blue Lock  
-- Slime (That Time I Got Reincarnated as a Slime)  
+- That Time I Got Reincarnated as a Slime  
 - Cyberpunk: Edgerunners  
 - Dan Da Dan  
 - Kaiju No. 8  
@@ -65,7 +65,10 @@
 - Shangri-La Frontier  
 - Wistoria: Wand and Sword  
 - Solo Leveling  
+- The Shiunji Family Children  
+- Chainsaw Man  
 - Blue Box  
+- Dead Dead Demons Dededede Destruction  
 - Mushoku Tensei  
 - The Eminence in Shadow  
 - The Summer Hikaru Died  
@@ -78,13 +81,10 @@
 - Black Butler  
 - Black Bullet  
 - Fate Series  
-- No Game No Life  
 - Pluto  
 - The Apothecary Diaries  
 - The Dangers in My Heart  
 - Bleach  
-- One Piece  
-- Chainsaw Man  
 - Dorohedoro  
 - Re-Main  
 - Undead Unluck  
@@ -113,7 +113,6 @@
 - Orb  
 - Tougen Anki  
 - Baccano  
-- The Shiunji Family Children  
 
 ---
 
