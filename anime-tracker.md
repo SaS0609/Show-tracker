@@ -78,6 +78,7 @@
 
 ## 📌 Plan to Watch  
 
+- One Piece
 - Black Butler  
 - Black Bullet  
 - Fate Series  
