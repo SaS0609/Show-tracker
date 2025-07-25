@@ -1,6 +1,6 @@
 # Anime tracker
 
-**✅ Watched**
+## ✅ Watched  
 
 - Blend S  
 - Love is War  
@@ -32,7 +32,7 @@
 - Assassination Classroom  
 - I’m Getting Married to a Girl I Hate in My Class  
 
-**⚠️ Currently Watching**
+## ⚠️ Currently Watching  
 
 - Pokémon Horizons  
 - Komi Can't Communicate  
@@ -69,7 +69,7 @@
 - The Summer Hikaru Died  
 - Oshi no Ko  
 
-**📌 Plan to Watch**
+## 📌 Plan to Watch  
 
 - Black Butler  
 - Black Bullet  
@@ -111,7 +111,7 @@
 - Baccano  
 - The Shiunji Family Children  
 
-**❗ Dropped**
+## ❗Dropped  
 
 - Chuunibyou  
 - DanMachi  
