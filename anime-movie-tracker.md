@@ -7,8 +7,6 @@
 - [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 · Dir. Satoshi Kon · Orig. Yoshikazu Takeuchi  
 - [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 · Dir. Satoshi Kon · Orig. Yasutaka Tsutsui  
 
----
-
 ## ✅ Watched
 
 - [*Josee, the Tiger and the Fish*](https://www.animesaturn.cx/watch?file=N-UfhBN_u-g5c) – 2020 · Dir. Kōtarō Tamura · Orig. Seiko Tanabe  
@@ -23,8 +21,6 @@
 - [*A Whisker Away*](https://www.animesaturn.cx/watch?file=2bfQPECJFyXv) – 2020 · Dir. Jun’ichi Satō  
 - [*The Boy and the Heron*](https://www.animesaturn.cx/watch?file=2_QiLmb9Zpgkw) – 2023 · Dir. Hayao Miyazaki · Inspired by Genzaburō Yoshino  
 - [*Maboroshi* (Alice to Therese no Maboroshi Kōjō)](https://www.animesaturn.cx/watch?file=MIn1et6ldLh8F) – 2023 · Orig. Haruko Kumota  
-
----
 
 ## 📌 Plan to Watch
 
