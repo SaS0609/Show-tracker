@@ -35,5 +35,5 @@
 - [*Howl's Moving Castle*](https://www.animesaturn.cx/watch?file=GE-NpM5JDj7xi) – 2004 · __
 - [*Ponyo*](https://animepahe.ru/play/730a0b29-94fc-29d3-4b6c-4c9c4522d1ac/fafa082485675b2d5a2a483eb5775cc83a852fc8f46d0ab1672d5caf1bed10ca) – 2008 · __
 - [*From Up on Poppy Hill*](https://animepahe.ru/play/d5e0647e-06fb-6fc7-87c0-24c99e674cac/6dcbd974e6120b332191d6bc7174d800e853d58927561a37f17e03676d15d0fd) – 2011 · __
-- [*The Wind Rises*](https://animepahe.ru/play/279f1e25-5abc-4b9b-d9f5-8e3059029c11/01bcbd86d631a6b5361950c58974d5dd7a092b484339ca84bc006c5e04e2a2bb) – 2013 · 
-- [*Ghost in the Shell*](https://www.animesaturn.cx/watch?file=ravQclGzx_iLP) – 1995 · 
+- [*The Wind Rises*](https://animepahe.ru/play/279f1e25-5abc-4b9b-d9f5-8e3059029c11/01bcbd86d631a6b5361950c58974d5dd7a092b484339ca84bc006c5e04e2a2bb) – 2013 · __
+- [*Ghost in the Shell*](https://www.animesaturn.cx/watch?file=ravQclGzx_iLP) – 1995 · __
