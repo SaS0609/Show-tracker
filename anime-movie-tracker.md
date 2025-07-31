@@ -6,6 +6,7 @@
 - [*A Silent Voice*](https://www.animesaturn.cx/watch?file=5BiByEOE1uxZH) – 2016 · Dir. Naoko Yamada · Orig. Yoshitoki Ōima  
 - [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 · Dir. Satoshi Kon · Orig. Yoshikazu Takeuchi  
 - [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 · Dir. Satoshi Kon · Orig. Yasutaka Tsutsui  
+- [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003 · Dir. Satoshi Kon  
 
 ## ✅ Watched
 
@@ -36,4 +37,3 @@
 - [*From Up on Poppy Hill*](https://animepahe.ru/play/d5e0647e-06fb-6fc7-87c0-24c99e674cac/6dcbd974e6120b332191d6bc7174d800e853d58927561a37f17e03676d15d0fd) – 2011 · Dir. Gorō Miyazaki · Orig. Sayama & Takahashi  
 - [*The Wind Rises*](https://animepahe.ru/play/279f1e25-5abc-4b9b-d9f5-8e3059029c11/01bcbd86d631a6b5361950c58974d5dd7a092b484339ca84bc006c5e04e2a2bb) – 2013 · Dir. Hayao Miyazaki · Orig. Tatsuo Hori  
 - [*Ghost in the Shell*](https://www.animesaturn.cx/watch?file=ravQclGzx_iLP) – 1995 · Dir. Mamoru Oshii · Orig. Masamune Shirow  
-- [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003 · Dir. Satoshi Kon  
