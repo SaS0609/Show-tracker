@@ -23,10 +23,10 @@
 - [*The Boy and the Heron*](https://www.animesaturn.cx/watch?file=2_QiLmb9Zpgkw) – 2023 · _5_
 - [*Maboroshi*](https://www.animesaturn.cx/watch?file=MIn1et6ldLh8F) – 2023 · _7.5_
 - [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988 · _8_
+- [*Grave of the Fireflies*](https://animepahe.ru/play/4660b1b4-4ec7-1346-ec3f-b77f6fa36e80/79282ce9a1e7594f4e263fa10e1df2ed016983aa437eab59f02d766ed811b7f5) – 1988 · _7.5_
 
 ## 📌 Plan to Watch
 
-- [*Grave of the Fireflies*](https://animepahe.ru/play/4660b1b4-4ec7-1346-ec3f-b77f6fa36e80/79282ce9a1e7594f4e263fa10e1df2ed016983aa437eab59f02d766ed811b7f5) – 1988 · __
 - [*Kiki’s Delivery Service*](https://animepahe.ru/play/efb05b39-b2c2-2acf-84c0-b9927292085b/ea3c38ca0272c42d6ed0f2853531d8768f434878cdecae3b52745b8b451dd9f7) – 1989 · __
 - [*Porco Rosso*](https://animepahe.ru/play/37a1da97-ebb0-113d-adee-d8979c648e6a/6acaf03f0ce21c0afc6d5491f3b5a673da84ce90a1f7b3d5eaf72f5d59520cba) – 1992 · __
 - [*Whisper of the Heart*](https://archive.org/details/nonton-whisper-of-the-heart-1995) – 1995 · __
