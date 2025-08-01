@@ -22,7 +22,7 @@
 - [*A Whisker Away*](https://www.animesaturn.cx/watch?file=2bfQPECJFyXv) – 2020 · _7.5_
 - [*The Boy and the Heron*](https://www.animesaturn.cx/watch?file=2_QiLmb9Zpgkw) – 2023 · _5_
 - [*Maboroshi*](https://www.animesaturn.cx/watch?file=MIn1et6ldLh8F) – 2023 · _7.5_
-- [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988 · _7.5_
+- [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988 · _8_
 
 ## 📌 Plan to Watch
 
