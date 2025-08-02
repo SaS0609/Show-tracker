@@ -4,30 +4,30 @@
 
 - [*Look Back*](https://www.animesaturn.cx/watch?file=DEjp0cmcTDVEj) – 2024 · _10_
 - [*A Silent Voice*](https://www.animesaturn.cx/watch?file=5BiByEOE1uxZH) – 2016 · _10_
-- [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 · _9.5_
-- [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 · _9_
-- [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003 · _9_
+- [*Perfect Blue*](https://www.animesaturn.cx/watch?file=B9fiIC9PoVf-) – 1997 · _10_
+- [*Tokyo Godfathers*](https://www.bilibili.tv/en/video/4790704041361920?bstar_from=bstar-web.ugc-video-detail.related-recommend.all) – 2003 · _9.5_
+- [*Paprika*](https://www.bilibili.tv/en/video/2006988724) – 2006 · _9.5_
 
 ## ✅ Watched
 
-- [*Josee, the Tiger and the Fish*](https://www.animesaturn.cx/watch?file=N-UfhBN_u-g5c) – 2020 · _7_
-- [*5 Centimeters per Second*](https://www.animesaturn.cx/watch?file=68EwGD2ZeVkM4) – 2007 · _7.5_
+- [*Josee, the Tiger and the Fish*](https://www.animesaturn.cx/watch?file=N-UfhBN_u-g5c) – 2020 · _6.5_
+- [*5 Centimeters per Second*](https://www.animesaturn.cx/watch?file=68EwGD2ZeVkM4) – 2007 · _7_
 - [*Your Name*](https://www.animesaturn.cx/watch?file=7jitl1c4P7b) – 2016 · _6_
-- [*Weathering with You*](https://www.animesaturn.cx/watch?file=OsDOsCFi2VR71) – 2019 · _7_
-- [*Suzume*](https://www.animesaturn.cx/watch?file=cizrQmr211H4) – 2022 · _7.5_
+- [*Weathering with You*](https://www.animesaturn.cx/watch?file=OsDOsCFi2VR71) – 2019 · _6.5_
+- [*Suzume*](https://www.animesaturn.cx/watch?file=cizrQmr211H4) – 2022 · _7_
 - [*Ride Your Wave*](https://www.animesaturn.cx/watch?file=wQTpTF378Ttoe) – 2019 · _6_
 - [*I Want to Eat Your Pancreas*](https://www.animesaturn.cx/watch?file=F7Z-1nL69quUA) – _8_
-- [*In This Corner of the World*](https://www.animesaturn.cx/watch?file=Whemy2Cr46xl7) – _7.5_ 
-- [*Bubble*](https://www.animesaturn.cx/watch?file=9_4Wo3V5D3NbR) – 2022 · _7_
+- [*In This Corner of the World*](https://www.animesaturn.cx/watch?file=Whemy2Cr46xl7) – _7_ 
+- [*Bubble*](https://www.animesaturn.cx/watch?file=9_4Wo3V5D3NbR) – 2022 · _6_
 - [*A Whisker Away*](https://www.animesaturn.cx/watch?file=2bfQPECJFyXv) – 2020 · _7.5_
 - [*The Boy and the Heron*](https://www.animesaturn.cx/watch?file=2_QiLmb9Zpgkw) – 2023 · _5_
 - [*Maboroshi*](https://www.animesaturn.cx/watch?file=MIn1et6ldLh8F) – 2023 · _7.5_
-- [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988 · _8_
+- [*My Neighbor Totoro*](https://animepahe.ru/play/bb0df009-af74-605d-f3f0-4787a4b202cf/9d0c47405008d9fac78b1a59ab89e49f84703529cac78eafdb1eec56c93695a6) – 1988 · _7_
 - [*Grave of the Fireflies*](https://animepahe.ru/play/4660b1b4-4ec7-1346-ec3f-b77f6fa36e80/79282ce9a1e7594f4e263fa10e1df2ed016983aa437eab59f02d766ed811b7f5) – 1988 · _7.5_
+- [*Kiki’s Delivery Service*](https://animepahe.ru/play/efb05b39-b2c2-2acf-84c0-b9927292085b/ea3c38ca0272c42d6ed0f2853531d8768f434878cdecae3b52745b8b451dd9f7) – 1989 · _7_
 
 ## 📌 Plan to Watch
 
-- [*Kiki’s Delivery Service*](https://animepahe.ru/play/efb05b39-b2c2-2acf-84c0-b9927292085b/ea3c38ca0272c42d6ed0f2853531d8768f434878cdecae3b52745b8b451dd9f7) – 1989 · __
 - [*Porco Rosso*](https://animepahe.ru/play/37a1da97-ebb0-113d-adee-d8979c648e6a/6acaf03f0ce21c0afc6d5491f3b5a673da84ce90a1f7b3d5eaf72f5d59520cba) – 1992 · __
 - [*Whisper of the Heart*](https://archive.org/details/nonton-whisper-of-the-heart-1995) – 1995 · __
 - [*Princess Mononoke*](https://animepahe.ru/play/9aef1d8b-764b-9aaa-9a64-05f162963727/1adf86f404de209f1aba3dae14e935658546210c7cf77275ac9040ff3519364a) – 1997 · __
