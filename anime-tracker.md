@@ -49,7 +49,8 @@
 - Cyberpunk: Edgerunners  
 - Dan Da Dan  
 - Kaiju No. 8  
-- Frieren: Beyond Journey’s End  
+- Frieren: Beyond Journey’s End
+- SAO  
 - Hunter x Hunter  
 - One Punch Man  
 - Heavenly Delusion  
@@ -95,7 +96,7 @@
 - Bocchi the Rock!  
 - The Rising of the Shield Hero  
 - Tokyo Revengers  
-- Yofukashi no Uta (Call of the Night)  
+- Call of the Night  
 - Tower of God  
 - Summer Time Rendering  
 - Devil May Cry  
