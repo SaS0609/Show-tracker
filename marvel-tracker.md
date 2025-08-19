@@ -4,7 +4,7 @@
 
 ### Phase One (2008–2012)
 ✅ Iron Man - 2008 • _9_  
-✅ The Incredible Hulk - 2008 • _6_  
+✅ The Incredible Hulk - 2008 • _7_  
 ✅ Iron Man 2 - 2010 • _7.5_  
 ✅ Thor - 2011 • _6.5_  
 ✅ Captain America: The First Avenger - 2011 • _7_  
@@ -21,7 +21,7 @@
 ### Phase Three (2016–2019)
 ✅ Captain America: Civil War - 2016 • _7.5_  
 ✅ Doctor Strange - 2016 • _8.5_  
-❌ Guardians of the Galaxy Vol. 2 - 2017 • __  
+✅ Guardians of the Galaxy Vol. 2 - 2017 • _6.5_  
 ❌ Spider-Man: Homecoming - 2017 • __  
 ❌ Thor: Ragnarok - 2017 • __  
 ❌ Black Panther - 2018 • __  
