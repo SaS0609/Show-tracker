@@ -15,7 +15,7 @@
 ✅ Thor: The Dark World - 2013 • _7_  
 ✅ Captain America: The Winter Soldier - 2014 • _8_  
 ✅ Guardians of the Galaxy - 2014 • _7_  
-✅ Avengers: Age of Ultron - 2015 • _9_  
+✅ Avengers: Age of Ultron - 2015 • _9.5_  
 ✅ Ant-Man - 2015 • _7.5_  
 
 ### Phase Three
