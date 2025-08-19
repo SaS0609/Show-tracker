@@ -20,7 +20,7 @@
 
 ### Phase Three (2016–2019)
 ✅ Captain America: Civil War - 2016 • _7.5_  
-❌ Doctor Strange - 2016 • __  
+✅ Doctor Strange - 2016 • _8.5_  
 ❌ Guardians of the Galaxy Vol. 2 - 2017 • __  
 ❌ Spider-Man: Homecoming - 2017 • __  
 ❌ Thor: Ragnarok - 2017 • __  
