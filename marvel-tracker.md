@@ -7,7 +7,7 @@
 ✅ The Incredible Hulk - 2008 • _7_  
 ✅ Iron Man 2 - 2010 • _7.5_  
 ✅ Thor - 2011 • _6.5_  
-✅ Captain America: The First Avenger - 2011 • _7_  
+✅ Captain America: The First Avenger - 2011 • _7.5_  
 ✅ The Avengers - 2012 • _9_  
 
 ### Phase Two
