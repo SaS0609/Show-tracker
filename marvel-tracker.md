@@ -6,20 +6,20 @@
 ✅ Iron Man - 2008 • _9_  
 ✅ The Incredible Hulk - 2008 • _7_  
 ✅ Iron Man 2 - 2010 • _7.5_  
-✅ Thor - 2011 • _8_  
-✅ Captain America: The First Avenger - 2011 • _7.5_  
+✅ Thor - 2011 • _7_  
+✅ Captain America: The First Avenger - 2011 • _8_  
 ✅ The Avengers - 2012 • _9_  
 
 ### Phase Two
-✅ Iron Man 3 - 2013 • _8.5_  
+✅ Iron Man 3 - 2013 • _8_  
 ✅ Thor: The Dark World - 2013 • _6.5_  
 ✅ Captain America: The Winter Soldier - 2014 • _8_  
-✅ Guardians of the Galaxy - 2014 • _7_  
+✅ Guardians of the Galaxy - 2014 • _7.5_  
 ✅ Avengers: Age of Ultron - 2015 • _9.5_  
-✅ Ant-Man - 2015 • _7.5_  
+✅ Ant-Man - 2015 • _6.5_  
 
 ### Phase Three
-✅ Captain America: Civil War - 2016 • _7.5_  
+✅ Captain America: Civil War - 2016 • _8_  
 ✅ Doctor Strange - 2016 • _9_  
 ✅ Guardians of the Galaxy Vol. 2 - 2017 • _6.5_  
 ✅ Spider-Man: Homecoming - 2017 • _7.5_  
