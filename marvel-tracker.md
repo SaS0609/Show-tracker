@@ -6,7 +6,7 @@
 ✅ Iron Man - 2008 • _9_  
 ✅ The Incredible Hulk - 2008 • _7_  
 ✅ Iron Man 2 - 2010 • _7.5_  
-✅ Thor - 2011 • _6.5_  
+✅ Thor - 2011 • _7_  
 ✅ Captain America: The First Avenger - 2011 • _7.5_  
 ✅ The Avengers - 2012 • _9_  
 
@@ -22,7 +22,7 @@
 ✅ Captain America: Civil War - 2016 • _7.5_  
 ✅ Doctor Strange - 2016 • _8.5_  
 ✅ Guardians of the Galaxy Vol. 2 - 2017 • _6.5_  
-❌ Spider-Man: Homecoming - 2017 • __  
+✅ Spider-Man: Homecoming - 2017 • _7.5_  
 ❌ Thor: Ragnarok - 2017 • __  
 ❌ Black Panther - 2018 • __  
 ❌ Avengers: Infinity War - 2018 • __  
