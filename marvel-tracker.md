@@ -24,7 +24,7 @@
 ✅ Guardians of the Galaxy Vol. 2 - 2017 • _6.5_  
 ✅ Spider-Man: Homecoming - 2017 • _7.5_  
 ✅ Thor: Ragnarok - 2017 • _9_  
-❌ Black Panther - 2018 • __  
+✅ Black Panther - 2018 • _8_  
 ❌ Avengers: Infinity War - 2018 • __  
 ❌ Ant-Man and the Wasp - 2018 • __  
 ❌ Captain Marvel - 2019 • __  
