@@ -25,7 +25,7 @@
 ✅ Spider-Man: Homecoming - 2017 • _7.5_  
 ✅ Thor: Ragnarok - 2017 • _9_  
 ✅ Black Panther - 2018 • _8_  
-❌ Avengers: Infinity War - 2018 • __  
+✅ Avengers: Infinity War - 2018 • _8.5_  
 ❌ Ant-Man and the Wasp - 2018 • __  
 ❌ Captain Marvel - 2019 • __  
 ❌ Avengers: Endgame - 2019 • __  
