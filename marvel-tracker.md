@@ -27,8 +27,8 @@
 ✅ Black Panther - 2018 • _8_  
 ✅ Avengers: Infinity War - 2018 • _8.5_  
 ✅ Ant-Man and the Wasp - 2018 • _7_  
-❌ Captain Marvel - 2019 • __  
-❌ Avengers: Endgame - 2019 • __  
+✅ Captain Marvel - 2019 • _7.5_  
+✅ Avengers: Endgame - 2019 • _10!_  
 ❌ Spider-Man: Far From Home - 2019 • __  
 
 ## Multiverse Saga
