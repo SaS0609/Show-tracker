@@ -26,7 +26,7 @@
 ✅ Thor: Ragnarok - 2017 • _9_  
 ✅ Black Panther - 2018 • _8_  
 ✅ Avengers: Infinity War - 2018 • _8.5_  
-❌ Ant-Man and the Wasp - 2018 • __  
+✅ Ant-Man and the Wasp - 2018 • _7_  
 ❌ Captain Marvel - 2019 • __  
 ❌ Avengers: Endgame - 2019 • __  
 ❌ Spider-Man: Far From Home - 2019 • __  
