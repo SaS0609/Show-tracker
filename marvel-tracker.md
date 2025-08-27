@@ -29,7 +29,7 @@
 ✅ Ant-Man and the Wasp - 2018 • _7_  
 ✅ Captain Marvel - 2019 • _7.5_  
 ✅ Avengers: Endgame - 2019 • _10!_  
-✅ Spider-Man: Far From Home - 2019 • _8_  
+✅ Spider-Man: Far From Home - 2019 • _8.5_  
 
 ## Multiverse Saga
 
