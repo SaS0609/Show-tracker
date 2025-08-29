@@ -34,7 +34,7 @@
 ## Multiverse Saga
 
 ### Phase Four
-❌ Black Widow - 2021 • __  
+✅ Black Widow - 2021 • _8_  
 ❌ Shang-Chi and the Legend of the Ten Rings - 2021 • __  
 ❌ Eternals - 2021 • __  
 ❌ Spider-Man: No Way Home - 2021 • __  
